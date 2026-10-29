@@ -13,7 +13,7 @@
 </p>
 
 <p align="center"> 
-⋆˚࿔ ㅤㅤ18yo ㅤ☆ㅤ <b>ESP/ENG</b>
+⋆˚࿔ ㅤㅤ19yo ㅤ☆ㅤ <b>ISTP</b>
 <p align="center"> 
 introvertㅤ ໒꒰ྀིっ˕ -｡꒱ྀི১ ㅤartist
 </p>
