@@ -23,7 +23,7 @@ introvertㅤ ໒꒰ྀིっ˕ -｡꒱ྀི১ ㅤartist
 </p>
 
 <p align="center"> 
-𖦹 <i>AKI&ANGEL</i> comfort ship ٩(ˊᗜˋ*)و
+𖦹 <i>DOTTORE&PANTALONE</i> comfort ship ٩(ˊᗜˋ*)و
 </p>
 
 <p align="center"> 
